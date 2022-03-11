@@ -1,6 +1,10 @@
 # Always remeber Arthur do Val
 
 
+[Áudios de Arthur do Val sobre ucranianas (Wikipedia)](https://pt.wikipedia.org/wiki/Arthur_do_Val)
+
+
+
 ## Brazilian politician criticised for misogynistic comments about Ukrainian women
 ### Independent UK
 
